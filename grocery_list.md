@@ -1,3 +1,0 @@
-## Fruits and Veggies
-
-Strawberries
